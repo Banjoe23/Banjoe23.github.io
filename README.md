@@ -1,2 +1,1 @@
-# Banjoe23.github.io
-title: Banjoe23's homepage
+# Banjoe23's homepage.  More coming soon.
